@@ -1,4 +1,4 @@
-## Far out: Saturn will be 'nearby' on Tuesday, so you might see its rings
+## Far out: Saturn will be 'Nearby' on Tuesday, So you Might See its Rings
 
 Saturn, its rings and its moons will be paying a "close" visit to Earth Tuesday night. 
 
@@ -6,7 +6,7 @@ Saturn is at "opposition" that day, meaning the planet and the sun are on _oppos
 
 It will be visible with the naked eye all night long, rising in the East around sunset and slowly making its way across the sky before setting in the West around sunrise, according to [AccuWeather](https://www.accuweather.com/).
 
-You'll need a telescope to see the planet's famous rings. But “if you have never spotted Saturn's rings, now is your chance,” AccuWeather astronomy blogger Dave Samuhel said.
+> “If you have never spotted Saturn's rings, now is your chance,” - AccuWeather astronomy blogger Dave Samuhel
 
 Some of Saturn's moons might also be visible with a telescope, NASA said. If you see its moons, Titan will be the brightest. 
 

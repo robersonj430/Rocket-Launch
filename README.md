@@ -1,4 +1,4 @@
-# Far out: Saturn will be 'nearby' on Tuesday, so you just might see its rings
+## Far out: Saturn will be 'nearby' on Tuesday, so you might see its rings
 
 Saturn, its rings and its moons will be paying a "close" visit to Earth Tuesday night. 
 
